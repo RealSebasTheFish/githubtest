@@ -7,5 +7,5 @@ AHUDGSHUD
 
 AAAAAAAAAAAAAAAAAAAAAAAAAaaa
 This is Seb
-fuck github my laptop is not 2600$ it cant handle this 
+fuck github my laptop is most definetely 2600$ it cannot handle this 
 bruh
